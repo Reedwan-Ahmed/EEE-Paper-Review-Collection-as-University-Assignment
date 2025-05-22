@@ -1,2 +1,2 @@
 # EEE-Paper-Review-Collection-as-University-Assignment
-All of these papers are done only by me.
+All of these papers were independently completed by me.
